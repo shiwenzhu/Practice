@@ -1,6 +1,6 @@
 # Practice
 
-#Eat shit!
+#Eat poop!
 
-This project just for us to eat some shit on the class. **However**,
-none of us bring the _shit_.
+This project just for us to eat some poop on the class. **However**,
+none of us bring the _poop_.
